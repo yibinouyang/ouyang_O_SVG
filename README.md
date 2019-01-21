@@ -1,1 +1,2 @@
 # ouyang_O_SVG
+I designed this plant icon, because I love flowes and small plant, and I feed some in my home , they are cute and don't need i spend a lot time to take care of them. Also my favorite color is green , so I use a lot of green in my icon.
